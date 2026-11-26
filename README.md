@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-😄I'm @CalayahXiong
+😄 I'm @CalayahXiong
 
-🔭How to reach me: junjun.xiong0712@gmail.com
+🔭 How to reach me: junjun.xiong0712@gmail.com
