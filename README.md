@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 😄I'm @CalayahXiong
 
-🔭Here to contact me: @junjun.xiong0712@gmail.com
+🔭How to reach me: junjun.xiong0712@gmail.com
